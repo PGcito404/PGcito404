@@ -1,16 +1,19 @@
-## Hi there 👋
+# Mi nombre es Santiago Solano 😄
 
-<!--
-**PGcito404/PGcito404** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# Actualmente tengo 16 años y soy un estudiante del colegio cientifico Costarricence sede San Pedro 🧪 🔬, pero planeo estudiar Ingenieria Mecanica ⚙️ cuando entre a la Universidad.
 
-Here are some ideas to get you started:
+# "Corrida de pitufo" 10/10 💙Inspiradora a más no poder.
+# 
+⠀⠀
+# Habilidades🎯:
+# -Python🐍
+# -Trabajo en equipo🤝
+# -Pensamiento crítico🧠
+# -Adaptabilidad🔄
+# -Creatividad🎨
+⠀⠀
+# Contacto📬:
+# Por qué quiere contactar a un menor de edad?🤨
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# Estadisticas📈
+# Aun pendientes
